@@ -1,1 +1,0 @@
-# aditya-nayak-portfolio-project-manager-website
